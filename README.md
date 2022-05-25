@@ -1,0 +1,3 @@
+- @bellicerqueira
+- 1° A
+- quase sem querer💭
