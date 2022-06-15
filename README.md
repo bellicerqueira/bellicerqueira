@@ -1,3 +1,3 @@
 - @bellicerqueira
 - 1° A
-- quase sem querer💭
+- lagum - eu e minhas paranoias
