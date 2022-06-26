@@ -1,3 +1,3 @@
 - @bellicerqueira
 - 1° A
-- lagum - eu e minhas paranoias!
+- Quem um dia irá dizer que não existe razão nas coisas feitas pelo coração?
